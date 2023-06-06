@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @EverlastingEG
+- 👋 Hi, I’m @EverlastingSuffering
 - 👀 I’m interested in sleeping
 - 🌱 I’m currently learning to fight with my shadow
 - 💞️ I’m looking to collaborate with my head
